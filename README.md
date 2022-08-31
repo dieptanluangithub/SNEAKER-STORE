@@ -6,7 +6,11 @@
 
 
 ![image](https://user-images.githubusercontent.com/82451887/187740829-f5a02dbd-a132-4cd4-9db9-dc8b65a41f07.png)
+[image](https://user-images.githubusercontent.com/82451887/187741436-5b235e55-1563-4b2d-8b6f-e39aeb5532d5.png)
+
 ![image](https://user-images.githubusercontent.com/82451887/187740864-5f2a8b89-af67-43d4-939c-4ed436a64fde.png)
+Thanh toán![image](https://user-images.githubusercontent.com/82451887/187741503-37772eee-e6f8-4230-8214-e1ca4ad865dc.png)
+
 ![image](https://user-images.githubusercontent.com/82451887/187740930-9472551f-dae0-4be8-8d87-af09f90c509a.png)
 ![image](https://user-images.githubusercontent.com/82451887/187740942-53e15f2b-f494-4afd-9d21-3548d6e01753.png)
 ![image](https://user-images.githubusercontent.com/82451887/187740981-3fb3ad9e-a5fd-4554-8833-da2723f04316.png)
